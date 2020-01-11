@@ -1,1 +1,1 @@
-Python–°¡∑œ∞
+Ôªøthis is a text
